@@ -1,2 +1,2 @@
-# ahmetbaysal.github.io
+https://ahmetbaysal.github.io/
 
